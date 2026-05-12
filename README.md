@@ -49,3 +49,4 @@ This Privacy Policy may be updated from time to time. Updated versions will be p
 Contact
 
 If you have any questions regarding this Privacy Policy, you may contact:
+yourseugene@gmail.com
